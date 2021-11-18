@@ -1,4 +1,5 @@
-# Kominers’s Conundrums: All Hail the Newest ‘Jeopardy’ Star - 
+# Kominers’s Conundrums: All Hail the Newest ‘Jeopardy’ Star - October 17, 2021
+https://www.bloomberg.com/opinion/articles/2021-10-17/kominers-s-conundrums-all-hail-the-newest-jeopardy-star
 
 | Category | Answer | Question |
 | --- | --- | --- |
