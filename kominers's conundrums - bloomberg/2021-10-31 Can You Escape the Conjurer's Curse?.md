@@ -37,3 +37,5 @@ https://www.bloomberg.com/opinion/articles/2021-10-31/kominers-s-conundrums-can-
 | **STOCK** | **UP** | **ON** | **CANDY** | - | **TICKER** | **TREAT** |
 
 
+## Confirmation of solution
+https://www.bloomberg.com/opinion/articles/2021-11-28/kominers-s-conundrums-meet-me-in-the-metaverse-if-you-can
