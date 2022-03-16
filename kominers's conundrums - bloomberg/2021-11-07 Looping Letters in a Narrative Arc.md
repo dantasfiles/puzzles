@@ -1,4 +1,4 @@
-# Kominers’s Conundrums: Looping Letters in a Narrative Arc
+# Kominers's Conundrums: Looping Letters in a Narrative Arc
 https://www.bloomberg.com/opinion/articles/2021-11-07/kominers-s-conundrums-looping-letters-in-a-narrative-arc
 
 | Letter | Background color | Letter color |
